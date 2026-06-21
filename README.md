@@ -1,2 +1,1 @@
-# TeknoParrot-Maxi-Terminal-WMMT6RR-Time-Zone-Private-No-Share
-For Time Zone Member
+This is my wmmt6rr+ loader teknoparrot pls dont share
